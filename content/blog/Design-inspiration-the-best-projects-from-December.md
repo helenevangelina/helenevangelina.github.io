@@ -7,8 +7,6 @@ title: 'Design Inspiration: The Best Projects From December'
 ---
 ### Black Lines brand identity, by & Smith
 
-Black Lines wants it to be as easy to serve a Negroni as it is a pint of lager. The drinks company is seeking to revolutionise the bar experience by serving cocktails by draught with a changing menu of drinks (as well as same favourite stand-bys). A pink grapefruit spritz was served through the summer while a new pear and white tea fizz joins the line-up for winter.
-
 1. ROFL means Rolling on floor laughing.
 2. STFU means Shut the *freak* up.
 3. LMK means Let me know.
